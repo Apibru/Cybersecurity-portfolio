@@ -3,7 +3,7 @@
 ## Senior Cybersecurity Analyst | SOC | GRC | Cloud Security | Threat Detection
 
 📍 United States  
-📧 epicflex@yahoo.com  
+📧 ekojoantwi38@gmail.com 
 🔗 LinkedIn: http://www.linkedin.com/in/emmanuel-antwi-0b663628b
 💻 Github : https://github.com/Apibru
 
